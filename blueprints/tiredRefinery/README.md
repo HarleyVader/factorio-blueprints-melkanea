@@ -11,7 +11,7 @@ _HOLD MY BEER!_
 SEE [README.md](https://github.com/HarleyVader/factorio-blueprints-melkanea/blob/main/README.md)  
 Weekend induced time dilation & 18h later. we sleept a while, "a while", ~~not enough,~~ on the coche infron of the desktop ~~3 screens 7.1 audio...~~ while factorio was on & 2 of my crew keept ~~ruining~~ my builds!!!
 _woke up & they still anoying the neighbours stuck on plastic..._
-_SOOO ~~no further adoo... adoos~~_
+_SOOO ~~no further adoo... adoos!!! ROFLMAO~~_
 MELKANEA BUILDS: [tiredRefiner-MK-I](https://github.com/HarleyVader/factorio-blueprints-melkanea/blob/main/blueprints/tiredRefinery/tiredRefinery-MK-I)_    
 
 ![image](https://github.com/user-attachments/assets/2d351f29-b443-4340-a836-7046b8d92a63)
