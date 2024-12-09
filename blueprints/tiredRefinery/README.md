@@ -17,7 +17,7 @@ MELKANEA BUILDS: [tiredRefiner-MK-I](https://github.com/HarleyVader/factorio-blu
 ![image](https://github.com/user-attachments/assets/2d351f29-b443-4340-a836-7046b8d92a63)
 
 ---
-_ # IT WAS MY FIRST FACTORIO RUN IN 17 MONTHS WORK WORK $ THE COMMUNITY IS THE VEST_  
+_IT WAS MY FIRST FACTORIO RUN IN 17 MONTHS WORK WORK $ THE COMMUNITY IS THE VEST_  
 [THANK YOU! ~~[not]~~ THANK YOU! ~~[losers]~~ GET A LIFE! ~~a real job~~ ^^](https://www.reddit.com/r/factorio/comments/1h9ohe6/comment/m14i6kc/?context=3)  
 ## THE FACTORY MUST GROW!  
 ---
