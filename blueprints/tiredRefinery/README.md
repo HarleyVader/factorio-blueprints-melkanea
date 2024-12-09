@@ -9,7 +9,7 @@ _NAAA WE POOR JANUARRY MAYBE_
 _hope 3 wholy kinds will bring us all the DLC!_   
 _HOLD MY BEER!_  
 SEE [README.md](https://github.com/HarleyVader/factorio-blueprints-melkanea/blob/main/README.md)  
-Weekend induced time dilation & 18h later. you sleept a while, ~~not enough,~~ on the coche infron of the desktop ~~3 screens 7.1 audio...~~ while factorio was on & 2 of my crew keept ~~ruining~~ my builds!!!
+Weekend induced time dilation & 18h later. we sleept a while, "a while", ~~not enough,~~ on the coche infron of the desktop ~~3 screens 7.1 audio...~~ while factorio was on & 2 of my crew keept ~~ruining~~ my builds!!!
 _woke up & they still anoying the neighbours to i build [tiredRefiner-MK-I](https://github.com/HarleyVader/factorio-blueprints-melkanea/blob/main/blueprints/tiredRefinery/tiredRefinery-MK-I)  
 
 ![image](https://github.com/user-attachments/assets/2d351f29-b443-4340-a836-7046b8d92a63)
