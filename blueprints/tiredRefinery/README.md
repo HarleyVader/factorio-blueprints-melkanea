@@ -1,7 +1,7 @@
 ### TIRED REFINERY MK-I
 
 ---
-*** "it was the late afternoon after home office on a clasisc casual friday's... when <our> discord moderators & admin hits... ***  
+"it was the late afternoon after home office on a clasisc casual friday's... when <our> discord moderators & admin hits... 
 *** WANNA PLAY FACTORIO??? ***   
 *** SPACE AGE? ***  
 ~~not played in 17 months butt goes~~  
