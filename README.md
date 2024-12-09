@@ -10,6 +10,6 @@ have fun stay safe & allways consent to [THE UNLICENCE!](https://github.com/Harl
 ### ![{544E67BA-EF58-4D79-9C62-6F44433B125C}](https://github.com/user-attachments/assets/4c33ee23-e9f0-4908-81f4-9d59e17f46f9)
 
 ~~NSFW NOT P*RN just +18 NSFW ADULTS ONLY~~  
-<ins>[GIT 3 MORONS & A RETIRED ~~P***~~ PRINCESS SPACE AGE!!! - Only 5$ Patronage](https://www.patreon.com/c/bambisleepchat/membership)</ins>
+<ins>[GIT 3 MORONS & A RETIRED ~~P***~~ PRINCESS SPACE AGE!!! - Only 5$ Patronage](https://www.patreon.com/c/bambisleepchat/membership)</ins>  
 ~~NSFW NOT P*RN just +18 NSFW ADULTS ONLY~~  
 ### JOIN naw 50% discount all dezember
