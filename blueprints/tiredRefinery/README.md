@@ -1,14 +1,14 @@
 ### TIRED REFINERY MK-I
 
-### it was the late afternoon, home office on a clasisc casual friday...
-_ wenn <our> admin & discord moderators hits... _  
+# it was the late afternoon, home office on a clasisc casual friday...
+_wenn <our> admin & discord moderators hits..._  
 _WANNA PLAY FACTORIO???_  
 _SPACE AGE?_   
 _ ~~not played in 17 months butt still goes~~ _   
 _NAAA WE POOR JANUARRY MAYBE_    
 _hope 3 wholy kinds will bring us all the DLC!_   
-_### HOLD MY BEER!_  
-SEE []()
+_HOLD MY BEER!_  
+SEE [Bactorio Blueprints - Melkaneaa](https://github.com/HarleyVader/factorio-blueprints-melkanea/blob/main/README.md)
 
 Weekend induced time dilation & 18h later. you sleept a while, ~~not enough,~~ on the coche infron of the desktop ~~3 screens 7.1 audio...~~ while factorio was on & 2 of my crew keept ~~ruining~~ my builds!!!
 
