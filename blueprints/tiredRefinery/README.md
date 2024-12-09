@@ -13,7 +13,7 @@ SEE []()
 Weekend induced time dilation & 18h later. you sleept a while, ~~not enough,~~ on the coche infron of the desktop ~~3 screens 7.1 audio...~~ while factorio was on & 2 of my crew keept ~~ruining~~ my builds!!!
 
 ### IT WAS MY FIRST FACTORIO RUN IN 17 MONTHS DUE TO WORK!!!
-[THANK YOU! ~~not~~ THANK YOU! ~~[losers]~~ GET A LIFE! ~~a real job~~ ^^](https://www.reddit.com/r/factorio/comments/1h9ohe6/comment/m14i6kc/?context=3)
+[THANK YOU! ~~[not]~~ THANK YOU! ~~[losers]~~ GET A LIFE! ~~a real job~~ ^^](https://www.reddit.com/r/factorio/comments/1h9ohe6/comment/m14i6kc/?context=3)
 # THE FACTORY MUST GROW!
 
 ![image](https://github.com/user-attachments/assets/2d351f29-b443-4340-a836-7046b8d92a63)
