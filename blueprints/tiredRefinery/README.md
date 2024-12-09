@@ -2,16 +2,16 @@
 
 ---
 ### 
-it was the late afternoon casual friday when our discord moderators hit...
-# WANNA PLAY FACTORIO ?
-# SPACE AGE?
-# NAAA WE POOR JANUARRY MAYBE 
-hope 3 wholy kinds will bring the DLC!
-# HOLD MY BEER!
----
----
-### NSFW +18 NSFW ADULTS ONLY
-[GIT 3 MORONS & A RETIRED ~~P***~~ PRINCESS SPACE AGE!!! - 5$ Patreon](https://www.patreon.com/c/bambisleepchat/membership) 
+*** "it was the late afternoon after home office on a clasisc casual friday's... when <our> discord moderators & admin hits... ***
+*** WANNA PLAY FACTORIO??? *** 
+*** SPACE AGE? ***
+~~not played in 17 months butt goes~~
+*** NAAA WE POOR JANUARRY MAYBE ***
+** hope 3 wholy kinds will bring us all the DLC! ***
+*** # HOLD MY BEER! ***
+
+~~ NSFW +18 NSFW ADULTS ONLY ~~
+[GIT 3 MORONS & A RETIRED ~~P***~~ PRINCESS SPACE AGE!!! - Only 5$ Patronage](https://www.patreon.com/c/bambisleepchat/membership) 
 ---
 
 Weekend induced time dilation & 18h later. you sleept a while, ~~not enough,~~ on the coche infron of the desktop ~~3 screens 7.1 audio...~~ while factorio was on & 2 of my crew keept ~~ruining~~ my builds!!!
