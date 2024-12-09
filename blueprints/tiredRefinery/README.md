@@ -4,7 +4,7 @@
 _wenn <our> admin & discord moderators hits..._  
 _WANNA PLAY FACTORIO???_  
 _SPACE AGE?_   
-_ ~~not played in 17 months butt still goes~~ _   
+_~~not played in 17 months butt still goes~~_   
 _NAAA WE POOR JANUARRY MAYBE_    
 _hope 3 wholy kinds will bring us all the DLC!_   
 _HOLD MY BEER!_  
