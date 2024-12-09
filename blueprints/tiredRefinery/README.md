@@ -8,7 +8,7 @@ _ ~~not played in 17 months butt still goes~~ _
 _NAAA WE POOR JANUARRY MAYBE_    
 _hope 3 wholy kinds will bring us all the DLC!_   
 _HOLD MY BEER!_  
-SEE [Bactorio Blueprints - Melkaneaa](https://github.com/HarleyVader/factorio-blueprints-melkanea/blob/main/README.md)
+SEE [README.md](https://github.com/HarleyVader/factorio-blueprints-melkanea/blob/main/README.md)
 
 Weekend induced time dilation & 18h later. you sleept a while, ~~not enough,~~ on the coche infron of the desktop ~~3 screens 7.1 audio...~~ while factorio was on & 2 of my crew keept ~~ruining~~ my builds!!!
 
