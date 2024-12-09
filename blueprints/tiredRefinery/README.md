@@ -1,7 +1,6 @@
 ### TIRED REFINERY MK-I
 
 ---
-### 
 *** "it was the late afternoon after home office on a clasisc casual friday's... when <our> discord moderators & admin hits... ***
 *** WANNA PLAY FACTORIO??? *** 
 *** SPACE AGE? ***
@@ -11,7 +10,7 @@
 *** # HOLD MY BEER! ***
 
 ~~ NSFW +18 NSFW ADULTS ONLY ~~
-[GIT 3 MORONS & A RETIRED ~~P***~~ PRINCESS SPACE AGE!!! - Only 5$ Patronage](https://www.patreon.com/c/bambisleepchat/membership) 
+<ins> [GIT 3 MORONS & A RETIRED ~~P***~~ PRINCESS SPACE AGE!!! - Only 5$ Patronage](https://www.patreon.com/c/bambisleepchat/membership) </ins>
 ---
 
 Weekend induced time dilation & 18h later. you sleept a while, ~~not enough,~~ on the coche infron of the desktop ~~3 screens 7.1 audio...~~ while factorio was on & 2 of my crew keept ~~ruining~~ my builds!!!
