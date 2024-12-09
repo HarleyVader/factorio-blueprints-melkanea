@@ -1,13 +1,13 @@
 ### TIRED REFINERY MK-I
 
 ---
-*** "it was the late afternoon after home office on a clasisc casual friday's... when <our> discord moderators & admin hits... ***
-*** WANNA PLAY FACTORIO??? *** 
-*** SPACE AGE? ***
-~~not played in 17 months butt goes~~
-*** NAAA WE POOR JANUARRY MAYBE ***
-** hope 3 wholy kinds will bring us all the DLC! ***
-*** # HOLD MY BEER! ***
+*** "it was the late afternoon after home office on a clasisc casual friday's... when <our> discord moderators & admin hits... ***  
+*** WANNA PLAY FACTORIO??? ***   
+*** SPACE AGE? ***  
+~~not played in 17 months butt goes~~  
+*** NAAA WE POOR JANUARRY MAYBE ***  
+** hope 3 wholy kinds will bring us all the DLC! ***  
+*** # HOLD MY BEER! ***  
 ---
 
  # ~~NSFW +18 NSFW ADULTS ONLY~~
