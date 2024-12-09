@@ -13,7 +13,7 @@ Weekend induced time dilation & 18h later. we sleept a while, "a while", ~~not e
 _woke up & they still anoying the neighbours stuck on plastic..._  
 _SOOO_  
 _~~no further adoo... adoos!!! ROFLMAO~~_   
-MELKANEA FACTORIO BLUEPRINT: [tiredRefiner-MK-I](https://github.com/HarleyVader/factorio-blueprints-melkanea/blob/main/blueprints/tiredRefinery/tiredRefinery-MK-I)   
+MELKANEA FACTORIO BLUEPRINT: [tiredRefinery-MK-I](https://github.com/HarleyVader/factorio-blueprints-melkanea/blob/main/blueprints/tiredRefinery/tiredRefinery-MK-I)   
 
 ![image](https://github.com/user-attachments/assets/2d351f29-b443-4340-a836-7046b8d92a63)
 
